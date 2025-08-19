@@ -27,4 +27,6 @@ If your aim is to explore everything this darknet marketplace provides, make sur
 
 
 
-Update:  13.08.2025
+
+
+Update:  Tuesday 19 August 2025 onion URL corrections
