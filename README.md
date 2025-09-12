@@ -31,4 +31,6 @@ If your aim is to explore everything this darknet marketplace provides, make sur
 
 
 
-Update:  23 August 2025 Link is now online
+
+
+Update:  09/12/2025 url is live and operational
