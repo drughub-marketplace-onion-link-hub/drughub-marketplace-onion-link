@@ -4,12 +4,12 @@ DrugHub: Market is a well-known destination in the darknet, attracting those see
 
 ## DrugHub: Market URL:
 
-http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion
+http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion
 
-[<img src="/gallery/crisp.webp" width="200">](http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion)
+[<img src="/gallery/crisp.webp" width="200">](http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion)
 
 
-<a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/gallery/setup.webp" alt="image" style="max-width: 100%;"><a>
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/gallery/setup.webp" alt="image" style="max-width: 100%;"><a>
 
 This is an educational platform designed solely for informational purposes, offering a look into the dark web. We do not collect commissions or kickbacks from market affiliate links. We are not affiliated with any legal entities and do not endorse or promote illegal activities. Prioritize your safety and security.
 
@@ -22,8 +22,8 @@ To avoid potential scams, it is essential to only use trusted DrugHub links and 
 If your aim is to explore everything this darknet marketplace provides, make sure you make security a priority and take the necessary precautions when browsing and making purchases using the Drughub marketplace onion link.
 
 
-<a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/gallery/open.webp" alt="image" style="max-width: 100%;"><a>  
-<a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/gallery/see.webp" alt="image" style="max-width: 100%;"><a>
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/gallery/open.webp" alt="image" style="max-width: 100%;"><a>  
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/gallery/see.webp" alt="image" style="max-width: 100%;"><a>
 
 
 
@@ -33,4 +33,6 @@ If your aim is to explore everything this darknet marketplace provides, make sur
 
 
 
-Update:  09/12/2025 url is live and operational
+
+
+Update:  14 September 2025
