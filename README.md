@@ -35,4 +35,6 @@ If your aim is to explore everything this darknet marketplace provides, make sur
 
 
 
-Update:  14 September 2025
+
+
+Update:  18.09.2025 Fixed broken link, now reachable
